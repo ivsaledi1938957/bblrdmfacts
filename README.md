@@ -1,1 +1,1 @@
-Martina Navratilova holds the record for the most singles titles won in the Open Era, with 167 titles to her name.
+The NBA consists of 30 teams divided into two conferences, the Eastern Conference and the Western Conference, each containing three divisions.

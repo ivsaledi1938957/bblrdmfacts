@@ -1,1 +1,1 @@
-The National Basketball Association (NBA) was founded in 1946 as the Basketball Association of America (BAA) and merged with the National Basketball League (NBL) in 1949 to form the NBA.
+The game of basketball was initially played with peach baskets as goals, and the first baskets made of metal were introduced in 1893.

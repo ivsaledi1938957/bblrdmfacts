@@ -1,1 +1,1 @@
-The modern game of tennis evolved from "lawn tennis," which was first played in England in the late 19th century.
+Tennis has four major tournaments known as the Grand Slam events: the Australian Open, French Open (Roland Garros), Wimbledon, and US Open.

@@ -1,1 +1,1 @@
-Tennis has four major tournaments known as the Grand Slam events: the Australian Open, French Open (Roland Garros), Wimbledon, and US Open.
+Michael Jordan, widely regarded as one of the greatest basketball players of all time, won six NBA championships with the Chicago Bulls and earned five regular-season MVP awards.

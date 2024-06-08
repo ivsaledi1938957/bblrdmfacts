@@ -1,1 +1,1 @@
-The NBA has a massive international following, with broadcasts reaching over 200 countries and territories and players from over 40 countries represented in the league.
+The FIBA Basketball World Cup, held every four years, is one of the most prestigious international basketball tournaments, featuring national teams from around the world competing for the championship title.

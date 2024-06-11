@@ -1,1 +1,1 @@
-Wilt Chamberlain holds numerous NBA records, including scoring 100 points in a single game in 1962, averaging over 50 points per game in a season, and grabbing over 55 rebounds in a game.
+The Boston Celtics hold the record for the most NBA championships, with a total of 17 titles won between 1957 and 2020.

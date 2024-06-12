@@ -1,1 +1,1 @@
-The Boston Celtics hold the record for the most NBA championships, with a total of 17 titles won between 1957 and 2020.
+John Stockton holds the NBA record for the most career assists, with 15,806 assists dished out during his tenure with the Utah Jazz.

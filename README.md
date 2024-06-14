@@ -1,1 +1,1 @@
-Rod Laver is the only player to have won the Grand Slam (all four major titles) twice, in 1962 and 1969.
+The first Wimbledon Championships, the oldest tennis tournament in the world, was held in 1877 at the All England Lawn Tennis and Croquet Club in Wimbledon, London.

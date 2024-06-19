@@ -1,1 +1,1 @@
-Roger Federer holds the record for the most Grand Slam singles titles by a male player, with 20 titles won between 2003 and 2018.
+The Golden State Warriors set an NBA record for the most wins in a regular season with 73 wins and only 9 losses during the 2015-2016 season, surpassing the previous record of 72-10 set by the Chicago Bulls in 1995-1996.

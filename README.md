@@ -1,1 +1,1 @@
-The NBA (National Basketball Association) was founded on June 6, 1946, as the Basketball Association of America (BAA) and merged with the National Basketball League (NBL) in 1949 to form the NBA.
+Hakeem Olajuwon is the NBA's all-time leader in blocked shots, with 3,830 blocks recorded throughout his career with the Houston Rockets and Toronto Raptors.

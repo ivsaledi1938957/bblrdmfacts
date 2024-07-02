@@ -1,1 +1,1 @@
-Basketball has become a global sport, with leagues and competitions held in countries around the world, including Europe, Asia, South America, and Africa.
+Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as an indoor game to keep his students active during the winter months.

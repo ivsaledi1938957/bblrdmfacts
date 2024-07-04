@@ -1,1 +1,1 @@
-Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as an indoor game to keep his students active during the winter months.
+LeBron James, often compared to Jordan, has won four NBA championships and four regular-season MVP awards, showcasing his versatility and dominance on the court.

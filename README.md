@@ -1,1 +1,1 @@
-LeBron James, often compared to Jordan, has won four NBA championships and four regular-season MVP awards, showcasing his versatility and dominance on the court.
+The FIBA Basketball World Cup, held every four years, is the premier international basketball tournament, featuring national teams from around the world competing for the championship title.

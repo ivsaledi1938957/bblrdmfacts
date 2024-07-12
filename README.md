@@ -1,1 +1,1 @@
-The Golden State Warriors set an NBA record for the most wins in a regular season with 73 wins and only 9 losses during the 2015-2016 season.
+The FIBA Basketball World Cup, held every four years, is one of the most prestigious international basketball tournaments, featuring national teams from around the world competing for the championship title.

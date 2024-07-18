@@ -1,1 +1,1 @@
-Hakeem Olajuwon is the only player in NBA history to win the NBA MVP, Defensive Player of the Year, and NBA Finals MVP awards in the same season (1993-1994).
+The FIBA Basketball World Cup, held every four years, is the premier international basketball tournament, featuring national teams from around the world competing for the championship title.

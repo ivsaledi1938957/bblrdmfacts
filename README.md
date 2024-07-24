@@ -1,1 +1,1 @@
-The Boston Celtics hold the record for the most NBA championships, with a total of 17 titles won between 1957 and 2020.
+Rod Laver is the only player to have won the Grand Slam (all four major titles) twice, in 1962 and 1969.

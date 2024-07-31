@@ -1,1 +1,1 @@
-Kobe Bryant, also known as the "Black Mamba," scored 81 points in a single game against the Toronto Raptors on January 22, 2006, the second-highest point total in NBA history.
+The original rules of basketball, written by Naismith, included 13 basic rules, which have since evolved and expanded into the comprehensive rulebook used today.
